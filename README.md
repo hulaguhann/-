@@ -1,0 +1,2 @@
+# -
+müngke tengriyin küçüdür
