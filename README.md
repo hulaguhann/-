@@ -1,2 +1,2 @@
-# -
-müngke tengriyin küçüdür
+# - BURAYA TIKLA 
+LİNK > https://hulaguhann.github.io/-/
